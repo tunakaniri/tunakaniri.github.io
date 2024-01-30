@@ -1,1 +1,0 @@
-# tunakaniri.github.io
